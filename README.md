@@ -1,2 +1,0 @@
-# rishikeshdaund
-student 
